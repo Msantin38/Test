@@ -1,1 +1,1 @@
-L'algorithme de Google est2 : tes
+L'algorithme de Google est : rien
