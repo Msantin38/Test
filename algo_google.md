@@ -1,1 +1,1 @@
-L'algorithme de Google est :
+L'algorithme de Google fonctionne :
