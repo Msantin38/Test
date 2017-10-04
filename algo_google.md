@@ -1,1 +1,1 @@
-L'algorithme de Google fonctionne :
+L'algorithme de Google est2 : tes
